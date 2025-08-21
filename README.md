@@ -6,4 +6,10 @@
 " ᴀɴᴅ ɪ ꜰᴏᴜɴᴅ ʜᴏᴘᴇ ɪɴ ᴀ ʜᴇᴀʀᴛ ᴀᴛᴛᴀᴄᴋ "
 <div align='center'> 
   <b> 　　 </b>
-<img width="429" height="304" alt="walee" src=".." />
+   <br>　　<br>
+
+<img width="429" height="500" alt="Arkham Knight Jason" src="Jason Todd _ Arkham Knight.jpg" />
+  <b> 　　 </b>
+
+<b> ɴɪᴋᴏʟᴀꜱ / ᴄɪɴᴏ <br>
+you may often see me around being a freak,, i'm normally very sane hashtag trust, ok?
