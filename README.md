@@ -23,7 +23,7 @@
 you may often see me around being a freak,, i'm normally very sane hashtag trust, ok?
   <b> 　　 </b>
 
-i love wally west n jason todd sm
+free c+h... unless name says dniuf etc etc . i block/hide freely .
 
 <a href="https://wallys4.straw.page">strawpage</a> ;☆; <a href="https://astrophlles.carrd.co">carrd</a> ;☆; <a href="https://pronouns.cc/@astrophlled">pronouns</a> ;☆; <a href="https://astrowestt.atabook.org">atabook<a/> ;☆; <a href="https://rentry.co/astrophlle">rentry<a/>
 
