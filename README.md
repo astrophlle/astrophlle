@@ -18,7 +18,7 @@
 <img width="429" height="500" alt="Arkham Knight Jason" src="Jason Todd _ Arkham Knight.jpg" />
   <b> 　　 </b>
 
-<b> ɴɪᴋᴏʟᴀꜱ / ᴄɪɴᴏ <br>
+<b> ɴɪᴋᴏʟᴀꜱ / ɴᴇʙᴜʟᴀ  <br>
 
 you may often see me around being a freak,, i'm normally very sane hashtag trust, ok?
   <b> 　　 </b>
