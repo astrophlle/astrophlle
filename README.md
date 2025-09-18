@@ -14,12 +14,11 @@
 <div align='center'> 
   <b> 　　 </b>
 
-────୨ৎ────
+════════════════════════════════════════════════════════════════════════════════════
 <div align='center'> 
   <b> 　　 </b>
    <br>　　<br>
-
-<img width="429" height="500" alt="Arkham Knight Jason" src="Jason Todd _ Arkham Knight.jpg" />
+<img width="700" height="750" alt="wally west" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled66_20250918201117.png" />
   <b> 　　 </b>
 
 <b> ɴɪᴋᴏʟᴀꜱ / ɴᴇʙᴜʟᴀ  <br>
@@ -31,7 +30,7 @@ free c+h... unless name says dniuf etc etc . i block/hide freely .
 
 <a href="https://wallys4.straw.page">strawpage</a> ;☆; <a href="https://astrophlles.carrd.co">carrd</a> ;☆; <a href="https://pronouns.cc/@astrophlled">pronouns</a> ;☆; <a href="https://astrowestt.atabook.org">atabook<a/> ;☆; <a href="https://rentry.co/astrophlle">rentry<a/>
 
-────୨ৎ────
+════════════════════════════════════════════════════════════════════════════════════
 <div align='center'> 
   <b> 　　 </b>
 " ᴄᴜᴛ ʙᴀᴄᴋ ᴅᴏᴡɴ ᴛᴏ ᴍʏ ᴋɴᴇᴇꜱ "
