@@ -1,6 +1,6 @@
 <div align='center'> 
 <b> </b>
-<b> </br>
+<b> <br>
 <img width="900" height="450" alt="red thing" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled66_20250918195814.png" />
 <div align='center'> 
   <b> 　　 </b>
@@ -40,3 +40,10 @@ free c+h... unless name says dniuf etc etc . i block/hide freely .
 <div align='center'> 
   <b> 　　 </b>
 " ɢᴏᴛᴛᴀ ɢᴇᴛ ʙᴀᴄᴋ, ɢᴏᴛᴛᴀ ɢᴇᴛ ꜰʀᴇᴇ "
+
+<div align='center'>
+<b> </b>
+<b> <br>
+<img width="900" height="450" alt="red thing" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled66_20250918201136.png" />
+<div align='center'>
+<b> </b>
