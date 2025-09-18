@@ -1,4 +1,10 @@
 <div align='center'> 
+<b> </b>
+<b> </br>
+<img width="900" height="450" alt="red thing" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled66_20250918195814.png" />
+  <b> 　　 </b>
+
+<div align='center'> 
   <b> 　　 </b>
 " ɪ ꜱɪᴛ ɪɴ ᴛʜᴇ ᴄᴀʀ ᴀɴᴅ ɪ ʟɪꜱᴛᴇɴ ᴛᴏ ꜱᴛᴀᴛɪᴄ "
    <br>　　<br>
