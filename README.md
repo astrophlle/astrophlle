@@ -1,6 +1,3 @@
-<img width="500" height="500" alt="red divider yass" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled64_20250918142813.png" />
-  <b> 　　 </b>
-
 <div align='center'> 
   <b> 　　 </b>
 " ɪ ꜱɪᴛ ɪɴ ᴛʜᴇ ᴄᴀʀ ᴀɴᴅ ɪ ʟɪꜱᴛᴇɴ ᴛᴏ ꜱᴛᴀᴛɪᴄ "
