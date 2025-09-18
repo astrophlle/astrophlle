@@ -1,4 +1,4 @@
-<img width="1000" height="900" alt="Arkham Knight Jason" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled64_20250918142813.png" />
+<img width="900" height="600" alt="Arkham Knight Jason" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled64_20250918142813.png" />
   <b> 　　 </b>
 
 <div align='center'> 
