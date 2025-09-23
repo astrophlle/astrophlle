@@ -22,7 +22,7 @@
 you may often see me around being a freak,, i'm normally very sane hashtag trust, ok?
   <b> 　　 </b>
 
-free c+h... unless name says dniuf etc etc . i block/hide freely .
+free c+h... unless stated otherwise . i block/hide freely .
 
 <a href="https://wallys4.straw.page">strawpage</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://astrophlles.carrd.co">carrd</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astrophlled">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/astrophlle">rentry<a/>
 
