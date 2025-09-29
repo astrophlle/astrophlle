@@ -19,10 +19,13 @@
 
 <b> ɴɪᴋᴏʟᴀꜱ , he .  <br>
 
-you may often see me around being a freak,, i'm normally very sane hashtag trust, ok?
+offtab often nowadays , w2i but i might not reply if im really busy , sorry if this happens .
   <b> 　　 </b>
 
 free c+h... unless stated otherwise . i block/hide freely .
+  <b> 　　 </b>
+
+i'm a little over in my head nowadays . sorry if i act odd .
 
 <a href="https://wallys4.straw.page">strawpage</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://astrophlles.carrd.co">carrd</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astrophlled">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/astrophlle">rentry<a/>
 <div align='center'> 
