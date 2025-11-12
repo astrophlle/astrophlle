@@ -28,14 +28,12 @@ free c+h... unless stated otherwise . i block/hide freely .
 
 ✦. links down below .
 
-<a href="https://wallys4.straw.page">strawpage</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://astrophlles.carrd.co">carrd</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astrophlled">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/astrophlle">rentry<a/>
+<a href="https://carminerush.straw.page">strawpage</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://astrophlles.carrd.co">carrd</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astrophlled">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/astrophlle">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
 ::
 <div align='center'> 
   <b> 　　 </b>
-  <a href="https://carminerush.straw.page">alt strawpage</a>
-  <br> <br>
   
 ══════════════════════════════════════════
 <div align='center'> 
