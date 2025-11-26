@@ -23,7 +23,7 @@
 offtab often nowadays , w2i but i might not reply if im really busy , sorry if this happens .
   <b> 　　 </b>
 
-free c+h... unless stated otherwise . i block/hide freely .
+free c+h... unless stated otherwise . i block/hide freely . previously known as astrophlle .
   <b> 　　 </b>
 
 ✦. links down below .
