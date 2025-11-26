@@ -1,13 +1,13 @@
 <div align='center'> 
   <b> 　　 </b>
-" 𝖸𝗈𝗎 𝗌𝖺𝗂𝖽 𝗒𝗈𝗎 𝗀𝗈𝗍𝗍𝖺 𝖻𝖾 𝗎𝗉 𝗂𝗇 𝗍𝗁𝖾 𝗆𝗈𝗋𝗇𝗂𝗇𝗀 "
+" and we can run away to the walls inside your house "
   <b> </b>
   <br> </br>
 
 
 <div align='center'> 
   <b> 　　 </b>
-" 𝖦𝗈𝗇𝗇𝖺 𝗁𝖺𝗏𝖾 𝖺𝗇 𝖾𝖺𝗋𝗅𝗒 𝗇𝗂𝗀𝗁𝗍 "
+" i can be the cat baby you can be the mouse "
 <div align='center'> 
   <b> 　　 </b>
   <br> <br>
@@ -38,9 +38,9 @@ free c+h... unless stated otherwise . i block/hide freely . previously known as 
 ══════════════════════════════════════════
 <div align='center'> 
   <b> 　　 </b>
-" 𝖠𝗇𝖽 𝗒𝗈𝗎'𝗋𝖾 𝗌𝗍𝖺𝗋𝗍𝗂𝗇𝗀 𝗍𝗈 𝖻𝗈𝗋𝖾 𝗆𝖾, 𝖻𝖺𝖻𝗒 "
+" we can talk about things that we know nothing about "
    <br>　　<br>
 
 <div align='center'> 
   <b> 　　 </b>
-" 𝖶𝗁𝗒'𝖽 𝗒𝗈𝗎 𝗈𝗇𝗅𝗒 𝖼𝖺𝗅𝗅 𝗆𝖾 𝗐𝗁𝖾𝗇 𝗒𝗈𝗎'𝗋𝖾 𝗁𝗂𝗀𝗁? "
+" we can go forever until you wannt sit it out "
