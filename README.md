@@ -20,7 +20,7 @@
 
 <b> ⌗. ɴɪᴋᴏʟᴀꜱ , he .  <br>
 
-offtab often nowadays , w2i but i might not reply if im really busy , sorry if this happens .
+offtab often nowadays , w2i but i might not reply if im really busy or really distracted , sorry if this happens . i follow back github if i recognize you / have seen you around before .
   <b> 　　 </b>
 
 free c+h... unless stated otherwise . i block/hide freely . previously known as astrophlle .
