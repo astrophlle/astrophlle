@@ -33,8 +33,7 @@ free c+h... unless stated otherwise . i block/hide freely . previously known as 
   <b> 　　 </b>
 ::
 <div align='center'> 
-  <a href="https://rentry.co/astrophlle">rentry 2</a>
-  <b> 　　 </b>
+
   
 ══════════════════════════════════════════
 <div align='center'> 
