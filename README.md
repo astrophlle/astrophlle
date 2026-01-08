@@ -28,7 +28,7 @@ free c+h... unless stated otherwise . i block/hide freely . previously known as 
 
 ✦. links down below .
 
-<a href="https://carminerush.straw.page">strawpage</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://astrophlles.carrd.co">carrd</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astjupiter">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/godist">rentry<a/>
+ reworking˗ˏˋ ★ ˎˊ˗ reworking ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astjupiter">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/godist">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
 ::
