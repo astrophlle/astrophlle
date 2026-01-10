@@ -18,9 +18,10 @@
 <img width="700" height="750" alt="wally west" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled66_20250918201117.png" />
   <b> 　　 </b>
 
-<b> ⌗. ɴɪᴋᴏʟᴀꜱ , he .  <br>
+<b> ⌗. ɴɪᴋᴏʟᴀꜱ , xe .  <br>
 
 offtab often nowadays , w2i but i might not reply if im really busy or really distracted , sorry if this happens . i follow back github if i recognize you / have seen you around before .
+i also randomly follow people so dont get spooked if u see me in ur followers ok...?
   <b> 　　 </b>
 
 free c+h... unless stated otherwise . i block/hide freely . previously known as astrophlle .
