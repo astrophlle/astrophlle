@@ -24,7 +24,7 @@ offtab often nowadays , w2i but i might not reply if im really busy or really di
 i also randomly follow people so dont get spooked if u see me in ur followers ok...?
   <b> 　　 </b>
 
-free c+h... unless stated otherwise . i block/hide freely . previously known as astrophlle .
+free c+h... unless stated otherwise . i block/hide freely . suspected something is very wrong with me .
   <b> 　　 </b>
 
 ✦. links down below .
