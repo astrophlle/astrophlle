@@ -18,7 +18,7 @@
 <img width="700" height="750" alt="PrinceZam" src="https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif"/>
   <b> 　　 </b>
 
-<b> ⌗. flame , xe .  <br>
+<b> ⌗. flame / others , xe / ask .  <br>
 
 offtab often nowadays , w2i but i might not reply if im really busy or really distracted , sorry if this happens . i follow back github if i recognize you / have seen you around before .
 i also randomly follow people so dont get spooked if u see me in ur followers ok...?
@@ -39,9 +39,9 @@ free c+h... unless stated otherwise . i block/hide freely . suspected something 
 ══════════════════════════════════════════
 <div align='center'> 
   <b> 　　 </b>
-" we can talk about things that we know nothing about "
+" 𝖸𝗈𝗎 𝖼𝖺𝗇'𝗍 𝖻𝖾𝖺𝗍 𝗆𝖾 𝗂𝗇 𝖺 𝗌𝗍𝗈𝗋𝗒 𝗍𝗁𝖺𝗍 𝖨 𝗐𝗋𝗈𝗍𝖾 . "
    <br>　　<br>
 
 <div align='center'> 
   <b> 　　 </b>
-" we can go forever until you wannt sit it out "
+" 𝖨'𝗅𝗅 𝗀𝗂𝗏𝖾 𝗒𝗈𝗎 𝖺 𝖼𝗁𝗈𝗂𝖼𝖾; 𝗆𝖺𝗄𝖾 𝗍𝗁𝖾 𝗋𝗂𝗀𝗁𝗍 𝗂𝗇𝗏𝖾𝗌𝗍𝗆𝖾𝗇𝗍 . "
