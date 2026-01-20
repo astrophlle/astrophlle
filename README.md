@@ -15,7 +15,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <div align='center'> 
   <br>　　<br>
-<img width="700" height="750" alt="wally west" src="ezgif.com-speed_7.gif" />
+<img width="700" height="750" alt="wally west" src="[https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif]" />
   <b> 　　 </b>
 
 <b> ⌗. flame , xe .  <br>
