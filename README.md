@@ -11,7 +11,7 @@
 Offtab really often, w2i unless name says otherwise ! Reading name for status is also recommended okay. . . Suspected osdd-1b , recognize ourselves as ' we ' - different selves .
   <b> 　　 </b>
 
-Usually up for c+h unless stated otherwise , please iwcare and be patient when interacting with us . Memory related troubles amy occur .
+Usually up for c+h unless stated otherwise , please iwcare and be patient when interacting with us . Memory related troubles may occur .
   <b> 　　 </b>
 
 ✦. links down below .
