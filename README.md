@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
-" and we can run away to the walls inside your house "
+" 𝖢𝖺𝗇 𝗒𝗈𝗎 𝗃𝗎𝗌𝗍 𝖺𝖽𝗆𝗂𝗍 𝗍𝗁𝖺𝗍 𝖨 𝖺𝗆 𝗌𝗍𝗋𝗈𝗇𝗀𝖾𝗋 𝗍𝗁𝖾𝗇 𝗒𝗈𝗎 ? "
   <b> </b>
   <br> </br>
 
@@ -15,7 +15,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <div align='center'> 
   <br>　　<br>
-<img width="700" height="750" alt="PrinceZam" src="(https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif)" />
+<img width="700" height="750" alt="PrinceZam" src="https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif"/>
   <b> 　　 </b>
 
 <b> ⌗. flame , xe .  <br>
